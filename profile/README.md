@@ -1,1 +1,1 @@
-# See on public vaade!
+# See on avalik vaade!
